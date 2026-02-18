@@ -1,0 +1,1 @@
+# slovoIT_prog
